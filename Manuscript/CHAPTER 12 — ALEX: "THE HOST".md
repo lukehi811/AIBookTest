@@ -114,6 +114,29 @@ Neither of them spoke. The stove ticked. Outside the wind had returned to a low,
 
 By the second afternoon, Mara was sitting up.
 Not recovered — she moved with the careful, provisional quality of someone who had learned not to trust their own body — but present. She accepted the second portion of the sugar syrup from Ben's tin cup with both hands wrapped around it, and when he produced a dented tin of ancient crackers from beneath the floorboards and set them on the floor between all of them, she ate methodically and without speaking, her dark eyes moving around the room the way they always did now. Watching the door. Watching the window. Processing the space.
+
+At some point during the afternoon, Mara stopped leaning against Emily.
+
+Alex tracked movement in the room as function, and her movement was small and deliberate — the careful, provisional crossing of six feet of cabin floor, her sneakers finding the boards without sound. She didn't go to the stove. She didn't go to Ben. She crossed to where Alex sat against the wall beside the door and settled herself down with her back against the wood beside him, tucking her knees up the way she always did.
+
+She didn't speak. She looked at his right hand.
+
+He was doing what he'd been doing all afternoon — the slow open and close, testing the response. He stilled it.
+
+She reached into the pocket of her jeans and produced something small. A piece of quartz, white with a gray vein through the center, smooth as a river stone. She'd been carrying it somewhere. She turned it once between her fingers, then held it out on her palm toward him with that same directness she'd had with the candy. Not uncertain. Not asking. Giving.
+
+He took it.
+
+Looked at it for a moment. Then closed his hand around it.
+
+"Thanks, Mara," he said. Low. The same register as before.
+
+She settled her weight against the wall beside him and let her eyes close.
+
+He held the stone in his returning hand and felt the edges of it. Then he pressed it into the inside pocket of his jacket.
+
+Both of them in there now.
+
 Ben watched her and said nothing. But Alex caught him once, when Mara had finished eating and leaned back against Emily's side and closed her eyes — a small, involuntary expression crossed Ben's face. Something that came and went too quickly to fully name. Not sentiment, exactly. Or not only sentiment.
 The expression of a person who had been alone for a very long time.
 He talked, through the afternoon. Not compulsively, not the way a person does when isolation has frayed their wiring. Quietly, in the gaps between silence, the way you speak when you've been thinking something for a long time and it's become comfortable to say.

@@ -54,6 +54,26 @@ He talked about the gas station. The fluorescent hum, the smell of the heating u
 
 Emily listened and asked small questions and watched Mara drift in and out of a healing sleep between them, and for an hour and a half the cabin felt like a room where people lived rather than a box of wood and cold keeping the dark out.
 
+At some point during Ben's telling — the apartment, the roommates, the smell of his mother's kitchen on a Tuesday — Mara stopped drifting.
+
+Emily felt it as a shift in weight. The loose, semi-conscious slack of the girl against her side becoming something denser. More deliberate. Present.
+
+Ben had refilled Emily's tin cup before he started talking — the last of the syrup thinned into warm water. It sat on the floor beside Emily's knee, mostly untouched.
+
+Mara looked at it. Then at Emily. Then she picked it up with both hands, careful, and held it out.
+
+Emily took it.
+
+She didn't say anything. She didn't make it mean what it meant, not out loud, because that wasn't the language of this cabin and it wasn't the language of this valley and it had never been the language Mara used. She just took the cup from the girl's small hands and held it.
+
+Mara settled back against her and tucked her chin down.
+
+The water was barely warm. Emily drank it anyway, slowly, and listened to Ben talk about fluorescent light at eleven-forty-two at night, and felt the specific weight of the girl against her side, and did not let herself look down. If she looked down she would feel the full size of what that small offering meant and she did not have the capacity for that right now.
+
+She would feel it later.
+
+She would have time.
+
 She didn't let herself forget what was outside. She just let herself rest from it.
 
 That was what Ben gave them, she thought. Not safety. Rest from the awareness of danger. That was its own kind of gift.
