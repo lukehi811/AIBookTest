@@ -34,18 +34,21 @@ Act II: The Concrete Wall. They collide with a rusted, industrial perimeter fenc
 Act III: The Keypad Lock. As the rhythmic clicks of the tracking swarm close in from the trees, Alex uses a piece of iron to force the heavy electronic keypad lock, slamming the steel vault door shut just as claws scrape the exterior.
 SECTION 3: THE LABYRINTH & THE WEAPONIZED HOLLOW (Chapters 14–18)
 Focus: Exploration of the subterranean military installation, discovering the true origin of the anomalies, the psychological horror of separation, and tracking Mara into the dark.
-### Chapter 14 — Alex: "The Weaponized Hollow"
-Act I: The Cold Corridors. Navigating the upper levels of the dead facility, lit only by flickering red emergency backup lights and smelling of stale ozone.
-Act II: The Dossiers. Emily uncovers classified military records and biological schematics. They realize the truth: this wasn't a natural anomaly, but a black-budget military project breeding and training these blind apex predators as organic acoustic weapons.
-Act III: The Sonic Fail-Safe. They find blueprints detailing a localized sonic fail-safe system designed to neutralize the entities, located deep within the subterranean sub-levels.
-### Chapter 15 — Emily: "Echo Chambers"
-Act I: The Descent. Descending the massive, concrete emergency stairwells into the pitch-black lower sectors of the facility.
-Act II: The Bounce. The stolen voices of dead survivors and people from their past begin to bounce flawlessly off the hard concrete walls, turning the corridor into an auditory nightmare.
-Act III: The Flight. The intense acoustic pressure and mimicking voices completely unhinge Mara. In a flash of blind panic, the girl breaks away from Emily's grip and flees into the dark lower corridors.
+## Chapter 14 — Emily: "The Facility Gate" (DRAFTED — Manuscript/)
+Act I: The fence line. Storm. Discovery of the concrete perimeter and bunker entrance.
+Act II: The keypad. Creatures closing. Alex forces the lock mechanism with iron.
+Act III: Entry and sealing. Limb in the door gap. Vault locked. Interior darkness.
+
+## Chapter 15 — Emily: "Echo Chambers" (DRAFTED — Manuscript/)
+Act I: The Descent. Navigating in absolute dark, down to Sub-Level 1. Emergency lighting found.
+Act II: The Bounce. Creatures already in the ducts. Harvested-voice library runs through the concrete. Emily's name, Dennis, Claire, synthesized voices.
+Act III: The Flight. Creature uses Mara's own voice via floor grate + sub-vocal tone. Mara breaks and runs into the dark lower corridor.
+
 ### Chapter 16 — Alex: "The Divide"
-Act I: The Chase. Alex and Emily sprint blindly through the labyrinth of pipes and steel doors, desperate to catch the sound of Mara's sneakers.
-Act II: The Sensor. Their running triggers a dormant proximity sensor in a structural choke point.
-Act III: The Slam. A massive, pneumatic emergency isolation door slams down between them with a concussive crash, physically separating Alex and Emily in the dark, intersecting hallways.
+NOTE: This chapter now carries three jobs — Alex's interior cost, the facility reveal, and the isolation door.
+Act I: The Cold Corridors + The Cost. Alex in the dark chasing Mara's sound with Emily. His shoulder from the Ch. 14 door-blow is failing. He processes what the facility IS — the architecture, the scale, the purpose — in the compressed tactical way he processes everything. He finds a dossier room: classified records, biological schematics. They understand the truth: not a natural anomaly. A black-budget military project. Creatures bred and optimized as acoustic weapons. A program called Project Veil.
+Act II: The Sonic Fail-Safe + The Sensor. Alex finds blueprints for a localized high-intensity sonic emitter array — a fail-safe — located in the deep sub-levels. Their running to reach it triggers a dormant proximity sensor in a structural choke point.
+Act III: The Slam. A massive pneumatic emergency isolation door comes down between them with a concussive crash, physically separating Alex and Emily in the dark intersecting hallways. Alex is on one side. Emily — and somewhere ahead of her, Mara — is on the other.
 ### Chapter 17 — Alex: "The Cost of Separation"
 Act I: The Mimic Trap. Isolated in the dark, the creatures in the ventilation shafts begin to play loops of Alex's injured groans to Emily and Emily's panicked breathing to Alex, trying to bait them into calling out.
 Act II: The Silent Tracker. Alex refuses to speak. He forces himself to rely on his deep knowledge of Emily's habits and training to guess which corridors she would take to survive.
