@@ -67,4 +67,7 @@ Emily didn't pull away. She leaned into the pressure, her head tilting back agai
 When he finally pulled back a fraction of an inch, their breath mingled in the tight space beneath the wool shroud, a single, hot plume of vapor that dissolved against their faces.
 Alex buried his face back into the crook of her neck, his jaw tight, his heart hammering a violent, synchronized rhythm against her spine. He didn't say anything. There were no words left that could carry the weight of what they had just done.
 Emily’s hand reached down beneath the sweater, her fingers sliding over the back of his functional left hand, locking her knuckles between his, pressing his palm firmly against her ribs.
+
+After a moment her fingers moved — a slow, quiet tapping against the back of his hand. Not a signal. Not a word. Just her mind still running somewhere in the dark, working through something too large for language, her knuckles finding a small rhythm the way hands do when the rest of the body has run out of things to do. He didn’t ask what she was turning over. He closed his eyes and held still and let it be what it was.
+
 Outside, the freezing whiteout continued to scour the limestone cliff, but inside the deep, unblinking dark of the high cave, the anchor held.

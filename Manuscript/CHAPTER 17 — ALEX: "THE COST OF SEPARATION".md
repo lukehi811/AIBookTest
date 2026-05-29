@@ -124,7 +124,9 @@ It was coming from his left — approximately twenty feet. The cadence was preci
 
 He knew this pattern.
 
-Not because Emily had tapped it to him in the facility. Because they had been using contact communication for weeks in the forest — not this exact sequence but this language, the short-long-short logic of information passed through solid objects when sound was not available. He had learned her patterns. He had stored them. This one was close enough that his body had already begun to orient toward it before his brain caught up.
+Not from a system they had built. From a limestone cave after the storm had peaked and Mara had gone quiet and the rest of the world had receded — Emily's fingers against the back of his hand in the dark, a slow wordless tapping, her mind working through something too large to say. He hadn't asked what. He hadn't known he was counting the rhythm until this moment, until the flooded dark was returning it to him with the patient flat fidelity of something that had been collecting such things long before he arrived.
+
+This one was close enough that his body had already begun to orient toward it before his brain caught up.
 
 He stopped orienting.
 
