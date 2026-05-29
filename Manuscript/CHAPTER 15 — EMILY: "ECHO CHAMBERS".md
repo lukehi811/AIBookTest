@@ -250,17 +250,51 @@ Emily went.
 
 She ran with the pipe up and her shoulder against the wall and the red light vanishing behind her as the corridor took her into its darker half, chasing the barely-audible percussion of small sneakers on concrete somewhere ahead in the black. Ten feet. Twenty. The wall curved left and she followed it. The pipe tip hit a doorframe and she adjusted without slowing.
 
+Then somewhere in the thirty feet after the second junction the pipe left the wall entirely — not a decision, just her body understanding that the arm holding it to the concrete was slowing her and the wall was not where Mara was. She ran in the open dark with both hands forward, one still gripping the iron, the other reaching into nothing because the alternative was running with her arms at her sides and she could not make herself do that, not here, not with Mara somewhere ahead in the black.
+
+The footsteps were getting no closer.
+
+She kept processing this even while she ran: Mara was making almost no sound and they were making too much and the gap between them was not closing. Every boot-fall she and Alex put on the concrete was a signal passing through the facility's infrastructure upward and downward and sideways, and something below already knew exactly where they were in the dark corridor and was somewhere ahead of them, between them and the child.
+
+She ran faster.
+
+This was wrong. She knew it in the same layer of her brain that had known every rule since the mud — that silence was the first commandment, that sound was the enemy's medium, that the pipe was supposed to read the floor so she didn't break her ankle on a threshold or a drain grate in the dark. She knew all of it. She ran faster anyway, because the sound of Mara's sneakers ahead was diminishing, not growing, and the only thing her body understood about that was less.
+
+Alex was behind her. She could hear him — barely, the compressed rhythm of his breathing and the specific way he landed harder on the right foot because of the ribs. He was running at the same wrong speed she was.
+
+Then the footsteps stopped.
+
+Not gradually. Completely. One moment the small percussion of Mara's run was threading through the dark ahead of them — asymmetric, right foot first, barely audible but real — and then there was nothing. No echo decay. No fade. Just absence, as though the sound had been a light switched off.
+
+Emily stopped.
+
+Alex stopped a half-step later, his hand catching her shoulder blade in the dark, steadying.
+
+The corridor was silent except for their breathing. Her own was wrong — too fast, too loud, the engine of her panic broadcasting into the dark in a way she hadn't allowed herself since the mud. She clamped her jaw and pulled it down through her nose, four counts, until the sound came back to something she could live with.
+
+She listened.
+
+Nothing. Not the footsteps. Not the woman's voice. Not the tone. Just the low electrical hum of the facility on backup power and the distant pressure of the infrastructure above them and her own heartbeat reading inside her skull.
+
+She could not hear Mara.
+
+The answer was obvious. She had run it in every scenario the valley had given her since the beginning: when you lose the signal, you stop, you assess, you do not move blind into the unknown. You wait for new information. You do not chase silence.
+
+She knew the answer.
+
+She ran.
+
 Behind them, in the ceiling above the junction where Mara had stood, the tone in the duct rose one frequency band.
 
 She didn't hear it happen.
 
-She heard only the concrete under her boots and the tight engine of her own breathing and somewhere in the dark ahead, getting no louder, getting no closer, the small fast sound of a child running toward whatever the voice below had told her was safe.
+She heard only the concrete under her boots and somewhere in the dark ahead, getting no louder, getting no closer, the absence where a small fast sound had been.
 
 The tone fell.
 
 Then the facility went completely silent.
 
-Only the three of them moving through it. Only the concrete carrying their sounds, sorting them, passing the information upward and downward and sideways through its infrastructure to whatever waited in the ducts and the sub-levels and the geometries built beneath the valley for purposes that had outlasted every person who had ever understood them.
+Only the two of them moving through it now. Only the concrete carrying their sounds, sorting them, passing the information upward and downward and sideways through its infrastructure to whatever waited in the ducts and the sub-levels and the geometries built beneath the valley for purposes that had outlasted every person who had ever understood them.
 
 Somewhere ahead: Mara.
 

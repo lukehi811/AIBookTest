@@ -42,7 +42,7 @@ Act III: Entry and sealing. Limb in the door gap. Vault locked. Interior darknes
 ## Chapter 15 — Emily: "Echo Chambers" (DRAFTED — Manuscript/)
 Act I: The Descent. Navigating in absolute dark, down to Sub-Level 1. Emergency lighting found.
 Act II: The Bounce. Creatures already in the ducts. Harvested-voice library runs through the concrete. Emily's name, Dennis, Claire, synthesized voices.
-Act III: The Flight. Creature uses Mara's own voice via floor grate + sub-vocal tone. Mara breaks and runs into the dark lower corridor.
+Act III: The Flight. Creature uses the mother's voice via floor grate + sub-vocal resonance tone. Mara breaks and runs into the dark lower corridor. Emily and Alex chase blindly, abandoning discipline — the reckless run that triggers the isolation door in Ch. 16.
 
 ### Chapter 16 — Alex: "The Divide"
 NOTE: This chapter now carries three jobs — Alex's interior cost, the facility reveal, and the isolation door.
@@ -64,9 +64,9 @@ Act I: The Dead End. Alex tracks Emily's scent and blood trail to a dead-end mai
 Act II: The Alarm. Knowing he cannot fight it physically, Alex smashes the glass on a localized fire-suppression console, triggering a high-decibel klaxon that completely deafens and disorients the hunting entity.
 Act III: The Pull. In the blinding, roaring noise, Alex lunges through the dark, grabs Emily, and pulls her out of the corridor in a fierce, breathless, and bruised reunion.
 ### Chapter 20 — Emily: "The Sub-Level Cavern"
-Act I: The Tracking of the Whimper. Following the faint sound of Mara's breathing to the absolute bottom of the facility—the main sub-level control booth.
-Act II: The Control Glass. They find Mara tucked into a catatonic ball beneath a steel desk inside the booth, which overlooks a massive, underground natural cavern.
-Act III: The Pack. Looking through the thick plexiglass window, they see the towering, lean profiles of the entire subterranean pack moving silently through the shadows of the cave below.
+Act I: The Search. Emily and Alex together now (post-Ch.19 reunion), tracking the last direction Mara ran into the cave system. Following residual sound and the specific acoustic signature of the girl's gait.
+Act II: The Finding. They find Mara in the deep cave — at the source of the mother's voice. She ran toward it and reached what was at the end. She is dead. Emily's devastation. The burial beat — they cannot leave her in the open cave. They carry her to the control booth, the one enclosed human space in the facility, and lay her there.
+Act III: The Pack. Through the thick plexiglass window of the control booth, they see the towering, lean profiles of the entire subterranean pack moving silently through the shadows of the cave below. The fail-safe is one level down. They have to go back through that.
 ### Chapter 21 — Alex: "The Fail-Safe Protocol"
 Act I: The Console Boot. Alex clears the dust off the main sub-level terminal, forcing the old generator to cycle power to the experimental sonic emitter arrays.
 Act II: The Dual Override. The system screen reveals a brutal design flaw: firing the high-intensity resonance pulse requires a manual, simultaneous dual-switch override on opposite sides of the room.
@@ -78,7 +78,7 @@ Act III: The Shouting Wall. With Alex stuck at the far terminal counting down th
 ### Chapter 23 — Dual POV (Alex / Emily): "The Shattered Pack"
 Act I: The Firing. The voltage hits peak capacity. Alex and Emily throw the dual switches simultaneously as the glass shatters.
 Act II: The Shockwave. A localized, high-intensity sonic frequency blasts through the cavern. The targeted wave shatters the calcified skulls of the subterranean pack, dropping the seven-foot monsters into silent heaps of gray dust.
-Act III: The Freight Elevator. With the immediate facility pack reduced to ash, Alex pulls Emily and a shivering Mara into a heavy, industrial emergency evacuation elevator that runs straight up to the surface.
+Act III: The Freight Elevator. With the immediate facility pack reduced to ash, Alex and Emily enter the evacuation elevator. Two of them. They went in with three.
 ### Chapter 24 — Epilogue: "The Red World"
 Act I: The Ascent. The long, mechanical crawl of the elevator rising out of the earth into the morning light.
 Act II: The Surface Command. The doors slide open into the main, above-ground military surface command center. Sunlight cuts through broken glass, but the entire complex is a silent, blood-soaked graveyard littered with dead personnel.

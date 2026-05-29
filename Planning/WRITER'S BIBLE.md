@@ -64,11 +64,16 @@ EMILY
 - Arc through Ch. 13: from stabilizer to active co-decision-maker and equal survivor.
 - Voice: more expressive than Alex but controlled under threat.
 
-MARA (ALIVE THROUGH CH. 13)
+MARA (ALIVE CH. 1–15 — DIES IN THE DEEP — DECISION LOCKED)
 - Arrives soaked, hypothermic, and intermittently catatonic.
 - Ch. 7-11: fragile, dependent, and high-risk in silence disciplines.
 - Ch. 12-13: begins partial physiological recovery (warming, eating, responsiveness).
-- Narrative function: moral center and tactical liability under acoustic threat.
+- Ch. 12: gives Alex a white quartz stone (callback to butterscotch candy — voluntary affection, not fear-response).
+- Ch. 13: holds out the tin cup of sugar water to Emily — the only time Mara gives warmth back instead of receiving it.
+- Ch. 15: creature deploys the mother's voice through the floor grate. Mara breaks and runs into the deep.
+- Death: Mara is found in the deep cave system — she ran toward the sound of her mother and reached its source. Alex and Emily find her before the fail-safe activation.
+- Narrative function: moral center, proof the system finds the one door no discipline can lock, and the specific weight that makes the fail-safe activation an act of grief rather than victory.
+- The cup she offered Emily in Ch. 13 — 'she would have time' — is the last voluntary thing she ever gave anyone.
 
 SECONDARY SURVIVORS (DRAFT-LOCKED)
 - Mud trench survivor (Ch. 9): unnamed, paranoid, ears packed with mud, killed during escape event.
