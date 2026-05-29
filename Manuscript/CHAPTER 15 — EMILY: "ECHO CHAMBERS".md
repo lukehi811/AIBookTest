@@ -182,11 +182,9 @@ Breathing. Ragged and close. Not a voice yet — just the acoustic shape of a bo
 
 Then her name again.
 
-Then Mara's voice.
+Then a woman's voice.
 
-The creature used Mara's voice.
-
-A small girl, plaintive and fragmented, calling Emily's name from below the floor with the exact, specific timbre of the child whose hand was locked in Emily's right now. The particular catch in the back of the throat that only happened when Mara was frightened and trying not to show it. Something no one could have reproduced without proximity. Without exposure. Without time.
+Not one Emily had heard in the library sequence — not Dennis, not Claire, not the synthesized near-Alex. Something new. A register she couldn't place, low and warm and specifically intimate in a way that separated it from every other sound the ducts had run tonight. Not broadcasting. Not searching. Calling. The kind of voice that didn't need to say anything important to matter. The kind of voice that mattered because of what it was.
 
 Emily felt Mara's fingers go slack.
 
@@ -194,11 +192,13 @@ She gripped harder and pulled and kept moving forward and did not look down at t
 
 But Mara looked.
 
-Emily felt the exact moment the girl's body changed — not a flinch, something deeper. The thing that happened when the mind tried to reconcile a version of itself existing outside its own skull. Mara turned toward the floor grate the way a compass found north: involuntary and complete.
+Emily felt the exact moment the girl's body changed — not the cognitive unmooring of hearing something strange, nothing that could be argued with or overridden. This was older than argument. The thing that happened when the one sound you had been reaching for in the dark for every day of your life since the forest started found the shape of you and fit.
+
+Mara turned toward the floor grate the way a compass found north: involuntary and complete.
 
 "Hey," Emily breathed, the word barely air. Her hand clamped Mara's wrist.
 
-The voice below shifted. It had been testing. Now it had something. It refined the sound — shorter, more plaintive, the specific syllable Mara used when she reached for Emily in the dark.
+The voice below shifted. It had been testing. Now it had something. The woman's voice went quieter — more specific, more close, dropping to the register of a word said in a kitchen at bedtime, a word said into the top of a child's head.
 
 Mara took one step toward the grate.
 
@@ -206,7 +206,7 @@ Emily stepped with her, putting herself between the girl and the sound, both han
 
 Look at me. Here. Up here.
 
-Mara's eyes in the fractional red light were enormous and wrong in a way that raised the hair on Emily's forearms. Not catatonic. Worse. Awake and receiving. Fully present in the sound coming from below rather than the hands on her face.
+Mara's eyes in the fractional red light were enormous and wrong in a way that raised the hair on Emily's forearms. Not catatonic. Worse. Fully present — but present somewhere else, in some room the sound below had constructed, in a before that the system had reproduced with enough fidelity to open a door that all of the forest and all of the discipline and all of Emily's hands had not been able to close.
 
 The voice from the grate went quiet.
 
@@ -216,11 +216,13 @@ Mara swayed.
 
 The tone pulsed once.
 
-Then the voice below them said, in Mara's own voice: "It's safe down here."
+Then the voice below said Mara's name.
+
+Just her name. In that same warm register. The specific pronunciation of a word Mara had been called since before she knew what names were.
 
 Mara pulled Emily's hands off her face.
 
-The motion was not violent. It was absent — the way a person moved when they had stopped processing the information their hands were giving them. The voice below was giving them something else. Something that fit a shape the girl had been reaching for since the forest started.
+The motion was not violent. It was absent — the way a person moved when they had stopped processing the information their hands were giving them. There was nothing left to override.
 
 Mara stepped left. Her foot came down on the grate.
 
