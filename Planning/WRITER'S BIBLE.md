@@ -51,6 +51,8 @@ SECTION 3: CHARACTER BIBLE (DRAFT-LOCKED THROUGH CH. 13)
 ALEX
 - Starting state: bruised left ribs, bruised cheekbone, dried blood at knuckles.
 - Ch. 6 onward injury: three deep claw gouges across right shoulder.
+- Ch. 14: vault door re-tears the right shoulder tissue Ben repacked. Returning grip, but unreliable fine motor control. Filed as fixed cost.
+- Ch. 16: left ribs still limiting. Right shoulder functional but negotiating.
 - Function: threat assessment, movement discipline, tactical decisions.
 - Psychology: controlled, quiet, protective, process-first under stress.
 - Arc through Ch. 13: shifts from sole protector to mutual partnership with Emily.
@@ -58,6 +60,8 @@ ALEX
 
 EMILY
 - Starting state: physically less injured than Alex, psychologically load-bearing.
+- Ch. 13 (Ben): shallow forearm cut, bandaged, going stiff in cold. Noted in Ch. 16.
+- Ch. 16: creature slash across upper left back and shoulder — diagonal draw, full claw extension. Wound is open and bleeding through clothing. Blood trail is the primary tactical liability for Chs. 17–18. Requires pressure and sealing before she can move through the facility without drawing every creature in range.
 - Function: emotional stabilizer, practical care, social reading.
 - Survival competence: bandaging, warming, de-escalation, rapid adaptation.
 - Flaw pressure: empathy can increase risk in uncertain alliances.
