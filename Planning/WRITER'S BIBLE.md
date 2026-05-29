@@ -64,16 +64,17 @@ EMILY
 - Arc through Ch. 13: from stabilizer to active co-decision-maker and equal survivor.
 - Voice: more expressive than Alex but controlled under threat.
 
-MARA (ALIVE CH. 1–15 — DIES IN THE DEEP — DECISION LOCKED)
+MARA (ALIVE — SURVIVES)
 - Arrives soaked, hypothermic, and intermittently catatonic.
 - Ch. 7-11: fragile, dependent, and high-risk in silence disciplines.
 - Ch. 12-13: begins partial physiological recovery (warming, eating, responsiveness).
 - Ch. 12: gives Alex a white quartz stone (callback to butterscotch candy — voluntary affection, not fear-response).
 - Ch. 13: holds out the tin cup of sugar water to Emily — the only time Mara gives warmth back instead of receiving it.
-- Ch. 15: creature deploys the mother's voice through the floor grate. Mara breaks and runs into the deep.
-- Death: Mara is found in the deep cave system — she ran toward the sound of her mother and reached its source. Alex and Emily find her before the fail-safe activation.
-- Narrative function: moral center, proof the system finds the one door no discipline can lock, and the specific weight that makes the fail-safe activation an act of grief rather than victory.
-- The cup she offered Emily in Ch. 13 — 'she would have time' — is the last voluntary thing she ever gave anyone.
+- Ch. 15: creature deploys the mother's voice through the floor grate. Mara breaks and runs. Emily and Alex chase blindly.
+- Ch. 16: Emily catches Mara in the cave passage. Creature encounter. Emily shields Mara from the swing and takes the slash across the upper back. Alex makes a deliberate sound to draw the creature off — voluntary sacrifice of silence discipline.
+- Ch. 16 onward: Mara is with Emily through Ch. 17/18 separation. Reunited with Alex in Ch. 19.
+- Ch. 18: Mara applies pressure to Emily's wound in the dark — the first time she gives care rather than receives it. Mirrors the tin cup.
+- Narrative function: moral center, proof the system can be survived, the specific reason Emily's promise (porch, cinnamon, warm blankets) exists to be kept.
 
 SECONDARY SURVIVORS (DRAFT-LOCKED)
 - Mud trench survivor (Ch. 9): unnamed, paranoid, ears packed with mud, killed during escape event.
@@ -86,7 +87,14 @@ SECTION 4: CREATURE SYSTEM (DRAFT-LOCKED THROUGH CH. 13)
 - Primary tracking behavior is acoustic mapping (clicks, vibration, response trapping).
 - Mimicry escalates from lure phrases to psychologically targeted callouts.
 - They pressure silence discipline through proximity and repeated provocation.
-- Fresh blood increases risk and urgency.
+- Fresh blood increases tracking risk — a blood trail is a continuous acoustic/chemical lure. Wounds must be sealed fast.
+
+4A-1. Voice Library — CANON RULE (LOCKED)
+- Creatures do NOT need to hear a voice in real-time to use it. They have access to a pre-existing voice library.
+- This library includes family members who have never been in the forest — voices of people the survivors have never spoken aloud near the creatures.
+- The mother's voice used against Mara in Ch. 15 is the clearest example: the creature did not acquire it from Emily or Alex or Mara. It already had it.
+- Implication: the system's acoustic intelligence predates the current survivors. Its knowledge base is older and more comprehensive than exposure alone could explain.
+- Hard rule for future chapters: do NOT write a creature deploying a voice it 'learned' from overhearing. Creatures deploy voices from a library. The horror is that the library already contains what you thought was private.
 
 4B. Physical Reveal Progression (Current Draft)
 - Ch. 1-5: mostly sound and partial cues.

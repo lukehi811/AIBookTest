@@ -144,94 +144,108 @@ Quiet. Not silent — the cave made silence a different proposition than the for
 
 The cave narrowed.
 
-He felt it before he saw it — the lateral walls coming in from both sides, the ceiling dropping to meet them, the wide primary chamber compressing into a structural throat no more than eight feet across. A natural chokepoint. The cave's geology forcing everything that moved through it into a single channel.
+He felt it before he saw it — the lateral walls compressing inward, the ceiling descending, the wide primary chamber collapsing to a throat eight feet across. Natural. Geological. The cave had been doing this for longer than the facility existed. He moved slower now, the pipe against the right wall, Emily a half-step behind his left shoulder.
 
-The facility had noted this.
+Ahead: a shape pressed against the rock.
 
-He saw the sensor housing on the right wall at the same moment his left boot crossed the pressure plate set flush into the cave floor.
+Small. Crouched low at the base of the left wall, back against stone, knees pulled in. The posture of someone who had run until running was no longer possible and then made themselves as small as the space would allow.
 
-A cold seam of amber light blinked on in the sensor housing — automatic, pulling on a backup circuit that had been waiting in the dark for exactly this.
+Mara.
 
-He looked at it.
+He felt Emily register it at the same moment — the change in her breathing, the particular stillness that preceded a movement she was already deciding on. He put his left hand back without looking, caught her wrist, held it. One second.
 
-He had crossed the threshold by two steps. Emily had not.
+Then: something else was in the cave.
 
-He looked back at her.
+He heard it before he resolved it visually — the quality of the darkness ten feet ahead of Mara shifting, the specific way a space changes when what's in it is larger than what belongs there. Then the shape became real and he stopped moving and stopped breathing and stopped everything he could stop.
 
-The amber light pulsed once.
+It was in the passage ahead of Mara.
 
-Then the ceiling dropped.
+Standing. Not moving. The vertical seam of its mouth closed, the facial structure turned toward them with the particular orientation of something reading the air rather than the light. It had not resolved them yet. Had not resolved Mara. Was operating on whatever information it had been given before they entered the throat — the vibration of their steps on the stone, the heat differential, the disturbed air of three bodies moving through a passage that had been empty.
+
+It was close enough that he could hear the pressure of it breathing.
+
+Alex did not move.
+
+Emily had arrived beside him. He didn't look at her. He kept his eyes on the thing in the passage and he held still with every specific competence ten years of circumstances he never wanted had given him, the discipline of a body that had learned the difference between freeze and stillness and had chosen the latter so many times it had become a reflex without the fear underneath.
+
+Emily moved without sound.
+
+She had not run for Mara. She had crossed the space between them with the unhurried precision of someone who understood that speed would be louder than care, and now she was against the left wall beside the girl, her arm going around the small shoulders, her hand coming up to cover Mara's mouth from below — chin cupped, palm flat, the firm enclosure that was not a threat but was also not negotiable.
+
+Mara's body went rigid.
+
+Then she saw Emily's face in the dark and the rigidity changed to something else.
+
+The creature had not moved.
+
+Alex measured the remaining distance between it and them — seven feet, perhaps eight. Near enough that its next orientation would resolve them if they gave it anything. Near enough that the thin red light from the last facility panel was leaving a suggestion of them on the cave wall if the thing had any light sensitivity at all. Near enough that when the passage brought their exhaled breath forward, the air current would carry it directly.
+
+He pressed himself against the right wall and he waited and he breathed as little as he could manage.
+
+Mara's hand had found Emily's forearm and was gripping it. He watched the girl's chest working — the rapid shallow cycling of a child who had been running alone in the dark and was now being asked to be still while a seven-foot thing stood in the dark ten feet away. He watched her hold it. Watched Emily's hand hold her.
+
+Fifteen seconds.
+
+Twenty.
+
+The creature shifted its weight.
+
+Not toward them. A settling, a reorientation, the slow sweep of a body recalibrating. The facial seam twitched — the subtle flexion he had seen in the hovel, in the open field, in every near encounter that had preceded the ones they hadn't survived. Assessing. Still in the stage before certainty.
+
+Twenty-five seconds.
+
+Then Mara made a sound.
+
+Not a word. Not even a cry — just the small involuntary compression of air that a child makes when the fear gets past the point the body can process silently. One breath pushed out through her nose against Emily's palm. Barely audible.
+
+The creature's head moved.
+
+Alex saw the orientation change happen in real time — the precise angle correction of something that had been reading ambient noise and had just received a clean signal, the biological equivalent of a lock clicking into place. Its weight shifted forward. The facial seam began its slow vertical spread.
+
+He didn't think about what to do next. His body had been building toward this calculation since the moment they entered the throat and there was only one answer and he had always known what it was going to cost.
+
+The creature swung.
+
+Not toward him. Toward the left wall, toward the compressed cluster of the two of them, toward the small sound that had given it the lock it needed. The appendage came in a wide lateral arc — claws first, the full extension of the reach — and Emily moved.
+
+She turned.
+
+She put her body between the swing and Mara. She wrapped her arms around the girl and turned so that her back absorbed the arc and not Mara's face, and the claws caught her across the left shoulder blade and the upper back in a diagonal draw that he heard clearly and that he knew the dimensions of without needing to see them.
+
+Emily made no sound.
+
+She stayed on her feet. Her arms stayed around Mara.
+
+The creature drew back for the second pass.
+
+Alex opened his mouth.
+
+He made a sound. A deliberate one — not a word, not a name, just his voice, loud and specific and unambiguous, fed directly into the cave's acoustic geometry so it would travel and carry and give the thing in the passage something with coordinates it could chase.
+
+The creature stopped.
+
+Oriented.
+
+Found him.
+
+He was already moving — away from them, back up the throat and into the wide chamber behind, the reverse of the direction they'd come, his boots loud on the stone because loud was the point now, loud was the only thing he had to offer. He kept making sound. Kept moving. The creature was coming — he could hear its weight on the rock, the specific percussion of something that tracked by sound and had just been given an unmistakable source.
+
+He glanced back once.
+
+Emily was looking at him.
+
+She knew what he'd done. He saw her understand it in the second they had before the cave closed between them. He pointed forward — into the deep, the direction Mara had come from, the direction the schematic said the fail-safe was, the only direction that mattered now.
+
+Emily turned.
+
+She took Mara forward into the dark.
+
+He ran.
 
 ---
 
-The door came down from a recessed housing he hadn't seen — hadn't been looking for, hadn't mapped, because nothing in the installed section had suggested this depth was designed for anything except the cave system that predated it. The pneumatic seal drove it down with a concussive force he felt through the stone a half-second before he heard it, a low boom that filled the throat of the cave and then cut off into a silence more total than anything the facility had produced since they entered it.
+The cave was behind him and ahead of him and everything in it was dark and cold and the thing was tracking the sound of his movement through the stone, and the quartz was in his inside pocket and the candy was there too and somewhere behind him in the deep Emily had Mara and was moving toward what the schematic had shown them and that was the whole calculation, that was all of it, that was enough.
 
-The door met the channel floor with a resonant clang.
+He kept making sound.
 
-Steel. Solid. The width of the passage, edge to edge.
-
-He was on the deep side.
-
-Emily was on the near side.
-
-He stared at the door.
-
-The amber sensor light had gone dark with the door's seating. The only illumination was the thin red spillage from the last facility panel, fifty feet back up the ramp. It caught the top edge of the door's housing in a hairline of red.
-
-He put his right hand against the steel.
-
-It did not move.
-
-It was not going to move. He knew the difference between a door that was locked and a door that was sealed — not a mechanism but a system, pneumatic pressure holding it as surely as the rock held the ceiling. The kind of seal that required the same dual authority that had locked the stairwell above.
-
-He did not call out.
-
-He had not made a sound in the forest except when silence was no longer possible. He did not make one now.
-
-He took his hand off the door.
-
-He stood in the dark — right hand at his side, left arm folded against his ribs, pipe in his right fist — and he thought about Emily.
-
-He thought about what Emily knew.
-
-She knew the fail-safe was below. She had read the same schematic he had, in the same two minutes, and she had arrived at the same total. She knew Mara was ahead and down. She knew the creatures were in the duct system and moving deeper. She knew the silence discipline. She knew — had known since before the forest, before all of it — how to read a space and move through it and keep herself alive in it.
-
-She was not on the other side of this door not knowing what to do.
-
-She was on the other side of this door knowing exactly what to do and being kept from it by four inches of pressurized steel.
-
-The difference mattered.
-
-He breathed.
-
-He thought about the schematic. The cave system was large. It did not have one approach. The facility had been built at the surface edge of it — which meant the cave ran under the facility, ran past it, ran in directions that predated every corridor and panel and ramp by centuries. The deep level was not only accessible from the direction he'd come from. It had the geometry of a system that had been shaping itself for longer than the program had existed.
-
-He needed light.
-
-He needed a map.
-
-He had neither.
-
-He turned away from the door and moved back into the cave passage, not quickly, one step at a time, the pipe reading the stone ahead of him. The floor was cold and uneven and the cave was deeper than the schematic had rendered and above him somewhere in the rock the facility's automation was no longer dormant.
-
-He thought about the quartz stone in his inside pocket.
-
-He thought about the butterscotch candy.
-
-He thought about a house with a big porch.
-
-He pressed the thoughts flat.
-
-He moved.
-
----
-
-Somewhere ahead: the fail-safe.
-
-Somewhere behind the door: Emily.
-
-Somewhere in the deep: Mara.
-
-Two out of three directions. That was workable.
-
-He went forward.
+He ran.
