@@ -2,7 +2,7 @@ CHAPTER 18 — EMILY: "THE OBSERVATION WARD"
 
 She didn't know exactly how long she'd been running before she stopped.
 
-Long enough that her breathing was wrong and her back was telling her things she couldn't afford to process while moving. She had Mara's wrist in her left hand and she had been running with the girl tucked against her side the way she'd run with her through the ice storm — the same held-close configuration, Mara's feet keeping pace by reflex or by sheer will or by whatever Mara had been running on since the floor grate.
+Long enough that her breathing was wrong and the back of her left shoulder was telling her things she couldn't afford to process while moving — a white heat running diagonal from shoulder blade toward spine, constant, waking up sharper every time she moved her left arm or breathed too deep into her ribs. She had Mara's wrist in her left hand and she had been running with the girl tucked against her side the way she'd run with her through the ice storm — the same held-close configuration, Mara's feet keeping pace by reflex or by sheer will or by whatever Mara had been running on since the floor grate.
 
 She found a door by touch — her free hand trailing the wall and finding the frame, then the handle. A room. She pushed it open and took them both inside and pulled it shut behind her.
 
@@ -24,9 +24,9 @@ She felt Mara nod against her forearm.
 
 The back of her shirt was wet.
 
-She'd known it since the cave throat, since she turned and felt the arc land and understood what it meant even as she was tightening her arms around Mara. She had not stopped to inventory it then because stopping was not a choice available to her. Now she reached her right arm back and brought her hand around and found the fabric soaked through across the left shoulder blade, the wetness extending diagonally downward toward the right side of her spine. She pressed lightly and felt the give beneath the cloth that meant the slash had gone past the surface.
+She'd known it since the cave throat, since she turned and felt the arc land and understood what it meant even as she was tightening her arms around Mara. She had not stopped to inventory it then because stopping was not a choice available to her. Now she reached her right arm back and brought her hand around and found the fabric soaked through across the left shoulder blade, the wetness extending diagonally downward toward the right side of her spine. She pressed lightly and pulled a short breath through her teeth before she could stop it — not from the give she felt beneath the cloth, though the give was there, but from the heat that answered the pressure directly, white and sharp and without apology, the wound reporting its own depth to her all at once. Her left shoulder locked for a second and then released.
 
-The Ben cut on her forearm had long since stiffened into something she'd stopped registering. This was different.
+The Ben cut on her forearm had long since stiffened into something she'd stopped registering. This was different. The Ben cut had never pulled like this when she moved. Had never made the left side of her back seize when she turned, never found her with such accuracy each time she breathed too deeply.
 
 A blood trail in the facility was not a passive liability. It was a broadcast. She had to seal it before she moved another step through these corridors.
 
@@ -40,7 +40,7 @@ Then they pressed.
 
 Firm, deliberate pressure — not the tentative touch of someone who didn't know what they were doing. She had watched Emily bandage Alex's shoulder in the dark of the root nest. She had watched the tearing of fabric and the tight wrapping and the logic of compression over bleeding. She understood, at seven, the grammar of this. Emily felt it in the steadiness of the pressure and she felt something else in it too that she didn't have the silence-space to name.
 
-She worked fast. Her left sleeve was already down to a short cuff — the fabric had been going to Alex's shoulder and then to various purposes since the early weeks, and what remained on the left arm was minimal. She pulled the remaining strip free from the seam with her right hand, working one-handed in the dark, biting the end of it to start the tear. She got two lengths from it. Not enough. She reached across and started on the right sleeve.
+She worked fast. Her left sleeve was already down to a short cuff — the fabric had been going to Alex's shoulder and then to various purposes since the early weeks, and what remained on the left arm was minimal. She pulled the remaining strip free from the seam with her right hand, working one-handed in the dark, biting the end of it to start the tear. She got two lengths from it. Not enough. She reached across and started on the right sleeve — and the motion of her left arm pulling across her body lit the wound up completely for a moment, a bright specific burn that made her jaw clamp shut. She held it. Let it thin. Kept working.
 
 Mara held the pressure the entire time. Both small hands flat against the wet fabric, reading the wound through cloth the way Emily's hands had read the temperature of Mara's forehead every morning in the root nest.
 
@@ -62,7 +62,7 @@ She had no pipe.
 
 She'd been running without processing that absence until the first step into the unfamiliar corridor reminded her — the darkness ahead of her was simply darkness now, not information. The pipe had been reading the floor six inches ahead of every step since Sub-Level 1, giving her the thresholds and drain grates and surface changes before her feet found them. Without it the floor was a speculation.
 
-She slowed. She put her foot forward first, testing the surface before committing weight, and moved the way the forest had taught her in complete darkness — less speed, more information. She kept her free hand against the right wall. Mara stayed tucked against her left side, matching her pace by feel.
+She slowed. She put her foot forward first, testing the surface before committing weight, and moved the way the forest had taught her in complete darkness — less speed, more information. She kept her free hand against the right wall. Mara stayed tucked against her left side, matching her pace by feel. The girl's shoulder pressed into the bind with every step — a low, steady pressure Emily couldn't shed and wouldn't have shed if she could.
 
 The corridor curved.
 
