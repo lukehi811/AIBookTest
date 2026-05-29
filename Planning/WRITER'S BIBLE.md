@@ -247,6 +247,28 @@ Provisional world rules (outline-stage, not yet draft-locked):
 Drafting rule:
 - Treat provisional rules as hypotheses until written on-page.
 
+SECTION 10A: FACILITY ENDGAME LORE (LOCKED — Ch. 23-24 CANON)
+The facility held two creature populations:
+1. Forest environment — creatures deployed/tested in the surrounding valley.
+2. Facility containment — creatures held in the lower sub-levels (breeding pens, observation wards, primary cave).
+
+What failed:
+- Containment breach (power failure or systemic failure — exact mechanism unspecified, intentionally ambiguous).
+- The assumption from the outside world, or what was officially recorded: personnel safely evacuated before the breach became uncontrollable.
+
+The truth (revealed Ch. 24):
+- The creatures reached the surface before personnel could get out.
+- The above-ground surface command center is a slaughterhouse — personnel dead, not evacuated.
+- The blast gates (massive outer concrete barriers) were blown outward from the inside — the creatures forced through them into the real world weeks before Alex and Emily arrived.
+- The facility did not suffer a controlled leak. It was a full breach, and the outside world is already compromised.
+
+The elevator ceiling (Ch. 23 plant):
+- The heavy industrial evacuation elevator has a ragged hole torn through its ceiling — metal peeled upward and outward.
+- This is the creatures' escape route: they forced upward through the elevator shaft on the way out.
+- The hole is weeks old (rust forming on torn edges).
+- It is never commented on in the elevator car — just visible, just present.
+- When the doors open in Ch. 24 and the carnage is visible, the hole and the blast gates complete the same sentence without either being stated aloud.
+
 SECTION 11: CONTINUITY WATCHLIST FOR NEXT PHASE
 Before drafting Ch. 14, resolve these in planning docs:
 - Creature model language: remove all remaining "permanently blind" claims.
