@@ -33,7 +33,7 @@ SECTION 2: AMNESIA SYSTEM (LOCKED)
 What Alex and Emily remember:
 - Their identities
 - Their relationship (already established)
-- Last clear memory: in a car after graduation-night context
+- Last clear memory: in a car, post-graduation context
 - The memory cuts mid-journey with no transition
 
 What they do not remember:
@@ -43,9 +43,31 @@ What they do not remember:
 
 Rule:
 - Amnesia is a timeline gap, not identity loss.
+- DO NOT write the capture as a prologue. The memory returns in Ch. 24 only.
+- The reader experiences the disorientation alongside the characters for the entire book.
 
 Current draft signal (Ch. 10):
 - Other survivors report similar memory discontinuity, supporting a wider event.
+
+WHAT ACTUALLY HAPPENED — CANON (LOCKED, NOT TO BE REVEALED UNTIL CH. 24):
+- Alex and Emily were in a car when intercepted by government/military vehicles.
+- Soldiers moved to detain and inject them (chemical amnesia agent — mechanism unspecified, intentionally vague).
+- Alex broke free when they moved toward Emily. He fought.
+- A soldier slammed a rifle stock into his left side — the crunch that became three months of bruised ribs.
+- A second blow to the face — bruised cheekbone.
+- He got at least one hit in — dried blood at his knuckles when he woke in the forest.
+- He went down. Last conscious image: Emily being held.
+- Emily did not fight or could not. She was held and injected cleanly after Alex collapsed.
+- She woke up physically uninjured. Carrying the last image of Alex being beaten before she went under.
+- This is why Emily is the psychological load-bearer from Ch. 1 — not trauma she can name, but pressure she carries in the body without being able to source it.
+
+HOW THE MEMORY RETURNS — CH. 24 CANON:
+- Fragments surface during the elevator ascent — the first upward motion toward the surface in months acts as a sensory trigger.
+- The images return in pieces: the car, the road blocked, the soldiers, the rifle connecting, collapsing.
+- By the time the doors open, they know what happened to them.
+- The carnage above ground then answers the second question — why. Not fully. Just enough.
+- The "why" (war, disaster, threat assessment) is suggested by the facility's scale and the classified records from Ch. 16 but is NEVER CONFIRMED. The horror is that a sufficient justification existed and they were considered acceptable assets for it regardless.
+- Do not name or confirm the program's external motivation in the draft. Leave it open.
 
 SECTION 3: CHARACTER BIBLE (DRAFT-LOCKED THROUGH CH. 13)
 ALEX
