@@ -269,6 +269,23 @@ Provisional world rules (outline-stage, not yet draft-locked):
 Drafting rule:
 - Treat provisional rules as hypotheses until written on-page.
 
+SECTION 10A-0: PROLOGUE CANON (LOCKED — Manuscript/PROLOGUE.md)
+The book opens with a prologue from the POV of a program technician on Drop Run 4.
+- Seven subjects, all unconscious/sedated, placed in the forest at the designated drop point.
+- The little girl (Mara) is last — placed at the base of a pine tree, thirty meters in, in her yellow school sweater. The technician carries her herself. She does not look back.
+- On the drive out, a voice calls from the tree line — a man, badly hurt. Protocol: possible loose subject, retrieve.
+- Soldier Castellano gets out. The voice calls his first name — not his rank, not his last name, the private name no program document contains. He stops. His flashlight hits the ground.
+- Soldier Reyes gets out to check. He is gone in one frame — no transition, just absence.
+- The van drives for eleven seconds. Something lands on the roof. More weight on the sides. The van stops.
+- The radio plays a weather report. The van does not move again.
+- The flashlight on the road burns until the battery dies.
+
+PROLOGUE RULES:
+- The creature is NEVER described. Only its effects.
+- The voice calling Castellano's first name is the key horror detail — the library has private information.
+- Do NOT add exposition explaining the program in the prologue. It is procedural and then it is horror.
+- Four deaths total: Castellano, Reyes, the technician, Harlan.
+
 SECTION 10A: FACILITY ENDGAME LORE (LOCKED — Ch. 23-24 CANON)
 The facility held two creature populations:
 1. Forest environment — creatures deployed/tested in the surrounding valley.
