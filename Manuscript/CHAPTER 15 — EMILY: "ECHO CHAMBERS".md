@@ -260,7 +260,7 @@ She ran faster.
 
 This was wrong. She knew it in the same layer of her brain that had known every rule since the mud — that silence was the first commandment, that sound was the enemy's medium, that the pipe was supposed to read the floor so she didn't break her ankle on a threshold or a drain grate in the dark. She knew all of it. She ran faster anyway, because the sound of Mara's sneakers ahead was diminishing, not growing, and the only thing her body understood about that was less.
 
-Alex was behind her. She could hear him — barely, the compressed rhythm of his breathing and the specific way he landed harder on the right foot because of the ribs. He was running at the same wrong speed she was.
+Alex was behind her. She could hear him — barely, the compressed rhythm of his breathing and the way he landed harder on the right foot because of the ribs. He was running at the same wrong speed she was.
 
 Then the footsteps stopped.
 

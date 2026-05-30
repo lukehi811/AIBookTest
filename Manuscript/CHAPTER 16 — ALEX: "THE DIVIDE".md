@@ -4,7 +4,7 @@ The corridor went left.
 
 He took it.
 
-Emily was behind him. He tracked her by the specific cadence he'd memorized in the forest — the three-quarter weight on the right foot, the hesitation at surface changes. The iron pipe was in his left hand. His right shoulder: functional. Mostly. The vault door had taken something from it when it swung closed — the specific grinding catch in the joint that meant the tissue Ben had repacked had re-torn against the steel, and what had been returning was now negotiating its terms again. He could use the arm. He could take weight on it. He filed the information as a fixed cost and kept moving.
+Emily was behind him. He tracked her by the specific cadence he'd memorized in the forest — the three-quarter weight on the right foot, the hesitation at surface changes. The iron pipe was in his left hand. His right shoulder: functional. Mostly. The vault door had taken something from it when it swung closed — the grinding catch in the joint that meant the tissue Ben had repacked had re-torn against the steel, and what had been returning was now negotiating its terms again. He could use the arm. He could take weight on it. He filed the information as a fixed cost and kept moving.
 
 Mara's footsteps had gone quiet forty seconds ago.
 
@@ -156,7 +156,7 @@ He felt Emily register it at the same moment — the change in her breathing, th
 
 Then: something else was in the cave.
 
-He heard it before he resolved it visually — the quality of the darkness ten feet ahead of Mara shifting, the specific way a space changes when what's in it is larger than what belongs there. Then the shape became real and he stopped moving and stopped breathing and stopped everything he could stop.
+He heard it before he resolved it visually — the quality of the darkness ten feet ahead of Mara shifting, the way a space changes when what's in it is larger than what belongs there. Then the shape became real and he stopped moving and stopped breathing and stopped everything he could stop.
 
 It was in the passage ahead of Mara.
 

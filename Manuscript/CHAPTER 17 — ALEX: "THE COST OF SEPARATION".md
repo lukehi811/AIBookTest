@@ -88,11 +88,9 @@ He mapped them automatically, the same way he mapped everything — the pattern 
 
 He did not move toward them.
 
-He stood in the passage and ran the logic the same way he'd run the breathing logic — not because the logic was protecting him from something he didn't feel but because the logic was the only tool available. Mara was with Emily. Emily had gone forward from the cave throat on his instruction. They were moving toward the fail-safe, which was forward and down, not back in the direction of this passage. They would not have circled back into this channel without a reason, and a reason would have required knowing where he was, and Emily did not know where he was.
+The real Emily was moving toward the fail-safe — forward and down, not back through this passage. She had no way to know where he was. Neither did the footsteps.
 
-Mara's footsteps did not know where he was either.
-
-He held still until the sound moved past his position and faded down the passage. He counted to thirty after the last echo. Then he moved forward.
+He held still until the sound moved past his position and faded. Then he moved forward.
 
 He did not answer.
 

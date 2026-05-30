@@ -48,7 +48,7 @@ Emily got the fabric strips free and folded them as thickly as she could manage.
 
 She tested the bind by reaching back. The fabric was flat against the wound. The pressure was maintained.
 
-She reached forward and found Mara's face in the dark with both hands — the check she'd done every morning since the root nest, the temperature read, the confirmation. The girl's cheeks were cold from the facility's air but not stone-cold, not the gray cold of the early hypothermia. Warm enough. The jaw was tight, the muscles under Emily's palms working in the controlled way of someone holding something in.
+She shifted her weight and turned. Mara came around to face her in the dark. She reached forward and found the girl's face with both hands — the check she'd done every morning since the root nest, the temperature read, the confirmation. The girl's cheeks were cold from the facility's air but not stone-cold, not the gray cold of the early hypothermia. Warm enough. The jaw was tight, the muscles under Emily's palms working in the controlled way of someone holding something in.
 
 Emily pressed her forehead lightly against Mara's.
 

@@ -50,7 +50,7 @@ She had been carrying it for four months. She understood that now — the way he
 
 She looked at the back of his head.
 
-He was standing at the panel, his left arm against his side, his posture carrying the last four months in the specific way his posture always carried cost — without flagging it, without performing it. She looked at the dried blood at the cuff of his jacket sleeve, left side. The bruised cheekbone she had read in low light and never fully understood the origin of. The left ribs that had never fully stopped registering.
+He was standing at the panel, his left arm against his side, his posture carrying the last four months in the way his posture always carried cost — without flagging it, without performing it. She looked at the dried blood at the cuff of his jacket sleeve, left side. The bruised cheekbone she had read in low light and never fully understood the origin of. The left ribs that had never fully stopped registering.
 
 She had wondered, once, early on, where the injuries had come from. The forest had added to them. But the originals had been there when she first found him.
 
@@ -220,7 +220,7 @@ She stood at a stove and stared at the blue flame for a moment.
 
 The stairs were carpeted. Mara went up them slowly, her left foot finding each step before committing, the asymmetric rhythm that Emily had been reading for four months. The landing had three doors. Alex had left the one on the right open.
 
-It was a child's room — not a young child, older, the specific intermediate stage between cartoon posters and bare walls where some of each remained. A desk with notebooks on it. A bookshelf. A bed with a quilt that had been made that morning or the morning before or the last morning someone had been there to make it, with the specific careful squareness of someone who made their bed every day.
+It was a child's room — not a young child, older, somewhere between cartoon posters and bare walls where some of each remained. A desk with notebooks on it. A bookshelf. A bed with a quilt that had been made that morning or the morning before or the last morning someone had been there to make it, made with the careful squareness of someone who made their bed every day.
 
 Mara stood in the doorway.
 
@@ -230,7 +230,9 @@ She thought about a big porch. A kitchen that smelled like cinnamon. Blankets th
 
 She said: "This one's yours."
 
-Mara looked at her for one moment with the expression she'd had since the root nest — the specific steadiness of a child who had found a fixed point and was not letting go of it — and then she crossed the room and got into the bed without a word. She lay on her side, facing the window that looked out onto the cul-de-sac and the maple in the front yard, and Emily pulled the quilt up to her shoulder and tucked it in the way you tuck in a sleeping child even though Mara was not asleep yet, because the motion meant something and the motion was not for nothing.
+Mara looked at her for one moment with the expression she'd had since the root nest — the steadiness of a child who had found a fixed point and was not letting go of it — and then she crossed the room and got into the bed without a word. She lay on her side, facing the window that looked out onto the cul-de-sac and the maple in the front yard, and Emily pulled the quilt up to her shoulder and tucked it in the way you tuck in a sleeping child even though Mara was not asleep yet, because the motion meant something and the motion was not for nothing.
+
+Alex was in the doorway. She looked at him. He reached into the inside pocket of his jacket and took out the quartz stone — white, gray-veined, smooth as it had always been — and set it on the edge of the nightstand beside the bed. Neither of them said anything. Mara's eyes were already closing.
 
 She left the door open enough to see the landing light.
 
@@ -256,9 +258,9 @@ The sky had gone from morning to afternoon while they were inside the facility a
 
 She sat in one of the chairs. Alex sat in the other.
 
-He put his arm along the back of her chair without making a thing of it, and she leaned into his side and he adjusted his arm to accommodate the lean, and they sat. The evening came in at its own pace. There was no urgency in it. There was nothing in the air of the porch that required moving toward or away from. She could feel his breathing and the specific warmth of him and she thought about the last time she had sat in a chair on a porch — a real chair, a porch with a railing and a yard — and could not arrive at the memory. There had been a time before the forest. She had it back now. But the porch in it was a different porch, and this one was better for being real and present and here.
+He put his arm along the back of her chair without making a thing of it, and she leaned into his side and he adjusted his arm to accommodate the lean, and they sat. The evening came in at its own pace. There was no urgency in it. There was nothing in the air of the porch that required moving toward or away from. She could feel his breathing and the warmth of him and she thought about the last time she had sat in a chair on a porch — a real chair, a porch with a railing and a yard — and could not arrive at the memory. There had been a time before the forest. She had it back now. But the porch in it was a different porch, and this one was better for being real and present and here.
 
-She was not tired. She was beyond tired in the specific way that takes you past its own sensation — the far side of exhaustion, where the body has simply agreed to continue. She was warm. She was outside and warm and sitting next to someone who was not going anywhere.
+She was not tired. She was beyond tired in the way that takes you past its own sensation — the far side of exhaustion, where the body has simply agreed to continue. She was warm. She was outside and warm and sitting next to someone who was not going anywhere.
 
 She closed her eyes for a moment.
 

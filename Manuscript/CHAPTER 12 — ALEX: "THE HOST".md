@@ -89,7 +89,7 @@ Her throat moved.
 "The ribs," Ben said quietly, looking at the left side of Alex's chest. "I can strap them. Not fix them. But strapping helps."
 "I know," Alex said.
 "Then let me."
-It took another twenty minutes. Ben's hands were careful and systematic, the wrapping tight enough to limit movement without restricting the lung expansion he needed to function. When it was finished Alex took a test breath — the specific, probing inhale of someone assessing damage — and the quality of the pain was different. Still total. But contained. Workable.
+It took another twenty minutes. Ben's hands were careful and systematic, the wrapping tight enough to limit movement without restricting the lung expansion he needed to function. When it was finished Alex took a test breath — a careful, probing inhale — assessing damage — and the quality of the pain was different. Still total. But contained. Workable.
 "Sleep," Emily said. She said it quietly, close to his ear, her hand still caught in his.
 "Not yet."
 "Alex."
@@ -158,7 +158,7 @@ He didn't elaborate and Alex didn't ask and the fire ticked in the stove and out
 That night Ben insisted on taking the watch again.
 Alex stayed awake for the first hour out of habit, his right hand opening and closing in the dark, testing. Better. Not good — the grip was unreliable, the fine control still absent — but the gross strength was returning. Emily had stripped and repacked the dressing twice now and whatever she'd used from Ben's supplies had done something the cold and improvised bandaging hadn't. The shoulder was not healed. But it was waking up.
 His ribs were another matter. The strapping helped and the rest helped more, but deep in the bone the grinding wrongness was still there — the wet catch on the deep inhale that meant something had moved beyond bruising into something worse. He breathed around it. Catalogued it. Filed it as a fixed cost.
-He lay in the dark and listened to Ben move. Quiet. Efficient. The soft, periodic adjustments to the stove damper. The specific sound of someone who understood what careless sound cost.
+He lay in the dark and listened to Ben move. Quiet. Efficient. The soft, periodic adjustments to the stove damper. The sound of someone who understood what careless sound cost.
 He was watching Emily sleep when he finally let himself acknowledge, without acting on it, the thing that had been sitting at the edge of his assessment since Ben had opened the door.
 Once, in the afternoon, when Emily had laughed at something Mara had done — a small laugh, barely a sound, more an exhaled breath than anything else — Ben had looked at her.
 The look had lasted two seconds. Maybe three.
