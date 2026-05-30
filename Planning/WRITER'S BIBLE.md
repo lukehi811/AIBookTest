@@ -308,6 +308,37 @@ The elevator ceiling (Ch. 23 plant):
 - It is never commented on in the elevator car — just visible, just present.
 - When the doors open in Ch. 24 and the carnage is visible, the hole and the blast gates complete the same sentence without either being stated aloud.
 
+SECTION 10B: PROGRAM BACKSTORY (LOCKED — NEVER CONFIRMED ON PAGE)
+What the program actually was:
+- Official cover: environmental testing. Subjects were dropped into the forest to measure whether humans could survive prolonged exposure to an anomalous environmental condition — something "off" in the valley that the program could not fully characterize. The working assumption was an atmospheric or biological anomaly, not a creature population.
+- The forest creature population was NEVER DISCOVERED by the program. The creatures were acoustically aware of the survey teams and went completely silent whenever personnel were present. The program read this silence as absence.
+- Subjects began dying. The program attributed early deaths to the environmental anomaly. When the pattern of deaths became undeniable as creature-caused, it was too late — facility containment was already failing simultaneously.
+- When the facility breach became uncontrollable, personnel chose to evacuate themselves. The forest subjects — including Alex, Emily, and Mara — were left behind. This was a deliberate choice, not an oversight.
+
+The abduction method (LOCKED — never confirmed on page):
+- Subjects were taken via staged vehicle interceptions. Government/military vehicles blocked the road. The crash cover story came later — families were told their person died in an accident. Subjects were pronounced dead. Multiple survivors in the forest share the same "last memory in a car" because the same method was used repeatedly across all runs.
+- Alex fought when soldiers moved toward Emily. He was struck with a rifle stock (left ribs) and hit in the face (cheekbone). He got at least one hit in — dried blood at his knuckles. He went down. Last image: Emily being held.
+- Emily did not fight or could not. She was held and injected cleanly after Alex collapsed. No injuries. Last image: Alex on the asphalt.
+- Both woke in the forest with no memory of the interception.
+
+The voice library (LOCKED):
+- The creatures' voice mimicry is entirely biological and pre-existing. It was not developed or enhanced by the program. The program never fully understood it.
+- The library contains not just vocal patterns but names, private language, intimate speech — information that could only be acquired through prolonged proximity to human subjects across multiple runs. The program did not know the library existed until it was too late.
+- Do not explain the mechanism. Leave it biological and opaque.
+
+The creature breach (LOCKED):
+- The breach of the facility was not accidental. The creatures acoustically mapped the entire facility over an extended period — ducts, corridors, power systems, structural weaknesses. When they acted, they acted with specific knowledge of the facility's architecture.
+- The elevator shaft was a deliberate exit route. The ceiling hole was made with directed, controlled force — not frantic escape but purposeful extraction.
+- The breach timeline: the creatures left the facility weeks before Alex and Emily arrived. The facility was empty of all living things when Alex and Emily entered it. Everything they survived in the facility was residual — creatures that had not yet followed the others out, or returned.
+
+What is NEVER confirmed on page:
+- The program's external justification (war, disaster, threat assessment, political authorization).
+- Whether anyone above the facility level survived or knew what happened.
+- Whether the creatures operate collectively or independently outside the valley.
+- Whether Alex and Emily are the only survivors of the forest runs, or whether others made it out.
+- The full geographic scope of the breach.
+The horror is that a sufficient justification existed and they were considered acceptable assets regardless.
+
 SECTION 11: CONTINUITY WATCHLIST FOR NEXT PHASE
 Before drafting Ch. 14, resolve these in planning docs:
 - Creature model language: remove all remaining "permanently blind" claims.
