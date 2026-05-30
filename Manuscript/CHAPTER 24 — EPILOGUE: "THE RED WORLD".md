@@ -177,3 +177,117 @@ Not the way she had held hands in the dark — where the holding was navigation,
 He was not letting go either.
 
 They began to walk.
+
+---
+
+The access road ran for two miles before it met the highway. The highway was two lanes, empty, the asphalt warm where the morning light had been on it for hours. Emily did not know how long they walked. She had been inside for long enough that the simple fact of a horizon — the specific depth of an open sky, the way your eyes adjust when there is no ceiling — was information that arrived in stages, the body calibrating.
+
+Mara walked in the middle. She had not spoken since the elevator. She walked with her head up, which Emily read as good, which Emily read as better than she had expected.
+
+The town arrived the way small towns arrive from a distance — first a gas station canopy over empty pumps, then a water tower, then the rooflines of houses behind a stand of maples that the road curved around. A sign said POPULATION 4,200. Someone had been maintaining the lettering until recently. The paint was fresh enough that the recent part was clear.
+
+The main street was still.
+
+Cars in the diagonal parking spaces. A hardware store with its door propped open. The pharmacy with the lights still on inside — the fluorescent kind, running on whatever had been running since nobody turned them off. The diner with its OPEN sign facing out, the sign's power cord lying on the floor inside the window, the sign dark.
+
+Emily looked for evidence of what had happened and found it in specific details rather than dramatic ones: a chair tipped over in the pharmacy, visible through the glass. A car pulled halfway out of a driveway, driver's door open, the car sitting at an angle that said it had been stopped mid-motion and not returned to. A single sneaker in the middle of the road with no explanation for its absence of a pair.
+
+Nothing moved. The maple leaves moved in the wind and nothing else did.
+
+Whatever had come through this town had come through it quietly and long enough ago that the town had had time to become simply itself again — the stopped version of itself, the version that did not contain the people who had lived in it. The storefronts looked ordinary. The sky above the water tower was the same sky everywhere.
+
+Alex kept the pipe in his right hand and moved through the street the way he moved through everything — reading it, deciding it. He said nothing. She had learned to read his silences and this one said: *I'm not running yet.*
+
+She was not running either.
+
+---
+
+The house was on a cul-de-sac one block off the main street. There was nothing special about it. White aluminum siding, a covered front porch with two chairs on it, a garage door closed. A flower bed along the front walk that had not been watered in some time but was not dead yet.
+
+The front door was unlocked.
+
+Alex went first. She waited on the porch with Mara and listened to him move through the interior — the systematic, unhurried progression of a man who had been clearing spaces for months and had developed an economy for it. She heard him on the stairs. She heard him in the rooms above. Then his footsteps came back down and the door opened.
+
+He held it for them and said nothing, which meant what it always meant.
+
+The interior was ordinary in a way that was almost painful: a couch, a coffee table with a magazine on it, a television. The kitchen through an arched doorway had dishes in the drying rack. The refrigerator was off — she didn't open it — but the pantry beside the stove was full of the practical things people kept when they stocked for a long winter: canned soup, canned tomatoes, crackers in sealed plastic sleeves, dried rice, sugar, salt. A French press with a canister of coffee beside it.
+
+Emily put her hand on the gas burner and turned it. It clicked twice and lit.
+
+She stood at a stove and stared at the blue flame for a moment.
+
+---
+
+The stairs were carpeted. Mara went up them slowly, her left foot finding each step before committing, the asymmetric rhythm that Emily had been reading for four months. The landing had three doors. Alex had left the one on the right open.
+
+It was a child's room — not a young child, older, the specific intermediate stage between cartoon posters and bare walls where some of each remained. A desk with notebooks on it. A bookshelf. A bed with a quilt that had been made that morning or the morning before or the last morning someone had been there to make it, with the specific careful squareness of someone who made their bed every day.
+
+Mara stood in the doorway.
+
+Emily came in behind her and pulled the quilt back. She shook the pillow into its case and straightened it and turned down the sheet. Then she stepped back.
+
+She thought about a big porch. A kitchen that smelled like cinnamon. Blankets that were always warm.
+
+She said: "This one's yours."
+
+Mara looked at her for one moment with the expression she'd had since the root nest — the specific steadiness of a child who had found a fixed point and was not letting go of it — and then she crossed the room and got into the bed without a word. She lay on her side, facing the window that looked out onto the cul-de-sac and the maple in the front yard, and Emily pulled the quilt up to her shoulder and tucked it in the way you tuck in a sleeping child even though Mara was not asleep yet, because the motion meant something and the motion was not for nothing.
+
+She left the door open enough to see the landing light.
+
+---
+
+Downstairs, Alex had found the can opener.
+
+They ate at the kitchen table — soup heated on the gas flame, crackers from the sleeve, water from sealed bottles in the pantry. They sat in actual chairs and ate from actual bowls and did not speak, not because there was nothing to say but because eating in a kitchen with a table and overhead light after four months of food in the dark was its own complete thing that did not require annotation.
+
+When they were done Emily washed the bowls and set them back in the rack.
+
+Alex stood in the kitchen doorway and watched her do it, and she was aware of being watched, and she did not explain why she was washing them. She just washed them. It seemed important to wash them. It seemed important to leave the kitchen as close to what it had been as she could.
+
+She turned off the burner.
+
+She turned off the light.
+
+---
+
+The front porch had two chairs and faced the cul-de-sac.
+
+The sky had gone from morning to afternoon while they were inside the facility and while they were walking, and now it was tipping toward evening, the light going gold on the aluminum siding of the houses across the cul-de-sac and on the maple in the front yard. The street was still. The two cars in the cul-de-sac were where they had been when she first looked at them. The neighborhood was quiet in the way of neighborhoods at the end of a day, the same quality of quiet whether or not the people in the houses were there to make it.
+
+She sat in one of the chairs. Alex sat in the other.
+
+He put his arm along the back of her chair without making a thing of it, and she leaned into his side and he adjusted his arm to accommodate the lean, and they sat. The evening came in at its own pace. There was no urgency in it. There was nothing in the air of the porch that required moving toward or away from. She could feel his breathing and the specific warmth of him and she thought about the last time she had sat in a chair on a porch — a real chair, a porch with a railing and a yard — and could not arrive at the memory. There had been a time before the forest. She had it back now. But the porch in it was a different porch, and this one was better for being real and present and here.
+
+She was not tired. She was beyond tired in the specific way that takes you past its own sensation — the far side of exhaustion, where the body has simply agreed to continue. She was warm. She was outside and warm and sitting next to someone who was not going anywhere.
+
+She closed her eyes for a moment.
+
+She opened them.
+
+---
+
+The sound came from the tree line at the end of the block.
+
+A single beat — low, rhythmic, the kind of frequency that arrived in the chest before the ears fully parsed it. One sound. Then the street was quiet again. The maple in the front yard did not move. The gold light on the houses across the cul-de-sac did not change.
+
+She felt Alex go still beside her.
+
+Neither of them spoke. She watched the tree line at the end of the block — the gap between the last house on the left and the edge of the park behind it, the dark space where the trees were close enough together to be a wall from this distance. Nothing moved in the gap.
+
+The street was quiet.
+
+The sound did not come again.
+
+She stayed where she was. She felt his arm still along her back, his shoulder against hers, his breathing returning to its even pace — not slowly, not performing calm, just arriving back at it the way he arrived at everything. She felt the weight of her own body in the chair. She felt the warmth from inside the house through the screen door, the slight smell of the soup they'd heated, the sound of nothing from upstairs where Mara was in a warm bed in a closed room with the landing light on.
+
+The world outside the porch was wrong. It had been wrong for weeks before they ever stepped into it. Whatever had torn through the elevator ceiling and through the blast doors had had weeks, and the town was empty, and the monitors were still running static in a room they had walked through and left behind, and whatever they had heard in the tree line was not the last time they were going to hear it.
+
+She knew all of this.
+
+She did not move.
+
+His arm was around her. Her head was against his shoulder. Inside, upstairs, there was a child in a warm bed with the quilt pulled up, and the kitchen was clean, and the landing light was on.
+
+The street was quiet.
+
+They stayed.
